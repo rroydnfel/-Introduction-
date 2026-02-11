@@ -9,9 +9,11 @@ Also go by other names,, such as Elliot or Roulette . Use whatever ya like .
 Happy to interact with anyone , hmu ! Open to talk about anythin .
 
 ⚠︎⫘⫘⫘⫘☠︎
+
 -:✧ I speak English & Malay ,, could understand only a tiny bit of Indonesian .
 -:✧Mostly into media/fandoms from Roblox,, but hey im willing to know more outside of it !
 -:✧ Other interests :Madness Combat, Hannibal, Sea creatures (esp Anglerfish & Giant Isopods.)
+
 ⚠︎⫘⫘⫘⫘☠︎
 
 ཐི ྐ❤︎ ཋྀ Familial yume: with my oc, Swap !
